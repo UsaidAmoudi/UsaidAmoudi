@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @UsaidAmoudi
 - 👀 I’m interested in ...AI
-- 🌱 I’m currently learning ...MNY THINGS
+- 🌱 I’m currently learning ...MANY THINGS
 - 💞️ I’m looking to collaborate on ...WITH AATX
 - 📫 How to reach me ...@CEO_USAID_TUTORIAL TELEGRAM
 - 😄 Pronouns: ...YEMENI
